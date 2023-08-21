@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @irasheva267
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...h rtt
+- 💞️ I’m looking to collaborate on ...h rttrthwh
 - 📫 How to reach me ...1233beg423 utyr djyttyttd
 27234nty rtn ea rge jfgdjdfflvuh 
 <!---a resdfsd
