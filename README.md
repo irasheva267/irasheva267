@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...h rttrthwh
-- 📫 How to reach me ...1233beg423 utyr djyttyttd
+- 📫 How to reach me ...1233beg423 utyr djyttyttdb  br
 27234nty rtn ea rge jfgdjdfflvuh 
 <!---a resdfsd
 irasheva267/irasheva267 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
