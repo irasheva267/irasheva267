@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @irasheva267
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ... grew
+- 🌱 I’m currently learning ... grew gre
 - 💞️ I’m looking to collaborate on ...h rttrthwhetyj
 - 📫 How to reach me ...1233beg423 utyr djyttyttdb  br
 27234nty rtn ea rge jfgdjdfflvuh 
